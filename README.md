@@ -1,5 +1,5 @@
 # IceProtect Discord
-You can join our discord @ https://discord.gg/b8K9xckqb6
+You can join our discord @ Discontinued
 ## Staff
 We have an active and patient staff team.
 # Titan - Main Developer
